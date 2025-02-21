@@ -1,0 +1,1 @@
+# igrovye-avtomaty-s-minimalnym-depozitom-50-rubley
